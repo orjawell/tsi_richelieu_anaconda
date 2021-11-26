@@ -1,7 +1,7 @@
 # tsi_richelieu_anaconda
 Unowhy broken, hahaha, ils ont cru quoi ?
 
-||zz||
+F8Hv4U3T67
 
 ### How to install it ? 
 
